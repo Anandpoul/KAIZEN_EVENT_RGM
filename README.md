@@ -1,0 +1,1 @@
+# KAIZEN_EVENT_RGM
